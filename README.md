@@ -1,2 +1,2 @@
-# Borislav_Dimitrov
+# Dimitrov
 D_1
